@@ -1,2 +1,2 @@
 # hello-world
-No u
+Hi, I'm Henry. I like Touhou music. Nice to meet you
